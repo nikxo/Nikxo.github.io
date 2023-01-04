@@ -1,3 +1,0 @@
-# Nikxo.github.io
-
-welcome
